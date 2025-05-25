@@ -1,0 +1,1 @@
+Young children of Spanish-speaking immigrants face challenges in learning English vocabulary and pronunciation due to a lack of interactive and real-time learning tools. As a result, they struggle to connect English words with objects in their environment effectively.
